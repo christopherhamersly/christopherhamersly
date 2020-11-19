@@ -1,7 +1,6 @@
 ### Hi there 👋
 
-- 📫 
-How to reach me:
+- 📫   How to reach me:
 christopherhamersly@gmail.com
 ***
 - ⚡
